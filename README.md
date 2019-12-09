@@ -1,9 +1,9 @@
 ## Wunschzettel
-* Buff-Schlaufenschal Merino, Schwarz, light- oder middleweight
+* ~Buff-Schlaufenschal Merino, Schwarz, light- oder middleweight~
 * Bücher ...
  * Juli Zeh
    * Leere Herzen
-   * Neujahr
+   * ~Neujahr~
  * T.C. Boyle
    * Outside Looking In
  * Adrian McKinty
