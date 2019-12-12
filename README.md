@@ -2,10 +2,10 @@
 * ~Buff-Schlaufenschal Merino, Schwarz, light- oder middleweight~
 * Bücher ...
  * Juli Zeh
-   * Leere Herzen
+   * ~Leere Herzen~
    * ~Neujahr~
  * T.C. Boyle
-   * Outside Looking In
+   * ~Outside Looking In~
  * Adrian McKinty
    * Police at the Station and They Don’t Look Friendly
    * The detective up late
