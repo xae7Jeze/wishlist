@@ -15,5 +15,5 @@
    * So finster die Nacht
 * EarFun Air Bluetooth Kopfhörer
 * Einladungen zum Essen,Kaffeetrinken (In Coronazeiten natürlich zuhause)
-* ~Adventskalender aller Art~
-* Bedrucktes T-Shirt (Yannik:))
+* Adventskalender aller Art
+* Bedrucktes T-Shirt
