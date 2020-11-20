@@ -1,21 +1,19 @@
 ## Wunschzettel
-* ~Buff-Schlaufenschal Merino, Schwarz, light- oder middleweight~
 * Bücher ...
- * Juli Zeh
-   * ~Leere Herzen~
-   * ~Neujahr~
- * T.C. Boyle
-   * ~Outside Looking In~
  * Adrian McKinty
    * Police at the Station and They Don’t Look Friendly
    * The detective up late
- * Tana French
-   * The Wych Elm
+   * Hang On St. Christopher
  * Demian Lienhard 
    * Ich bin die, vor der mich meine Mutter gewarnt hat
- * Lioba Werrelmann
-   * ~Hinterhaus~
-* Einladungen
- * Kaffee, Kino, Theater, Konzert, Museum ...
+ * Guillermo Martínez
+   * Die Oxford-Morde
+   * Der Fall Alice im Wunderland
+ * Colum McCann.
+   * Apeirogon 
+ * John Ajvide Lindqvist
+   * So finster die Nacht
+* EarFun Air Bluetooth Kopfhörer
+* Einladungen zum Essen,Kaffeetrinken (In Coronazeiten natürlich zuhause)
 * ~Adventskalender aller Art~
-
+* Bedrucktes T-Shirt (Yannik:))
