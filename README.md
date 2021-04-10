@@ -2,9 +2,8 @@
 * Bücher ...
   * Adrian McKinty
     * The detective up late
+    * Alter Hund, neue Tricks 
     * Hang On St. Christopher
-  * Guillermo Martínez
-    * Die Oxford-Morde
   * John Ajvide Lindqvist
     * So finster die Nacht
   * T.C. Boyle
@@ -14,6 +13,10 @@
   * Kazuo Ishiguro
     * Klara und die Sonne
     * Alles was wir geben mussten
+  * Nele Pollatschek
+    * Dear Oxbridge
+  * Sharon Dodua Otoo
+    * Adas Raum
 * Reisehängematte Tickettothemoon, Größe Original, Hauptfarbe Aqua, Rand Darkgrey
 https://www.tapir-store.de/ticket-to-the-moon-original-hammock/?number=156437
 * Moonstraps zur Hängematte
