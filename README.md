@@ -2,8 +2,6 @@
 * Bücher ...
   * Adrian McKinty
     * The detective up late
-    * Alter Hund, neue Tricks 
-    * Hang On St. Christopher
   * John Ajvide Lindqvist
     * So finster die Nacht
   * T.C. Boyle
@@ -12,7 +10,6 @@
     * Über Menschen
   * Kazuo Ishiguro
     * Klara und die Sonne
-    * Alles was wir geben mussten
   * Nele Pollatschek
     * Das Unglück anderer Leute
   * Sharon Dodua Otoo
