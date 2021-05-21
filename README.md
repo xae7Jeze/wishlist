@@ -2,8 +2,6 @@
 * Bücher ...
   * Adrian McKinty
     * The detective up late
-    * Alter Hund, neue Tricks 
-    * Hang On St. Christopher
   * John Ajvide Lindqvist
     * So finster die Nacht
   * T.C. Boyle
@@ -12,11 +10,12 @@
     * Über Menschen
   * Kazuo Ishiguro
     * Klara und die Sonne
-    * Alles was wir geben mussten
   * Nele Pollatschek
     * Das Unglück anderer Leute
   * Sharon Dodua Otoo
     * Adas Raum
+  * Karl R. Popper
+    * Gesammelte Werke in deutscher Sprache Band 3: Logik der Forschung
 * Reisehängematte Tickettothemoon, Größe Original, Hauptfarbe Aqua, Rand Darkgrey
 https://www.tapir-store.de/ticket-to-the-moon-original-hammock/?number=156437
 * Moonstraps zur Hängematte
