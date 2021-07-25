@@ -9,7 +9,7 @@
   * Juli Zeh
     * Über Menschen
   * Kazuo Ishiguro
-    * Klara und die Sonne
+    * Der begrabene Riese
   * Nele Pollatschek
     * Das Unglück anderer Leute
   * Sharon Dodua Otoo
