@@ -6,8 +6,6 @@
     * Talk to me
   * Juli Zeh
     * Über Menschen
-  * Kazuo Ishiguro
-    * Der begrabene Riese
   * Nele Pollatschek
     * Das Unglück anderer Leute
   * Karl R. Popper
