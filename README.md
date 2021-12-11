@@ -15,3 +15,5 @@ https://www.tapir-store.de/ticket-to-the-moon-original-hammock/?number=156437
 * Moonstraps zur Hängematte
 * Einladungen zum Essen,Kaffeetrinken (In Coronazeiten natürlich zuhause)
 * Bedrucktes T-Shirt
+* Rasierhobel ohne Plastik. Z.B. https://www.de.bambaw.com/products/metal-safety-razor-2?variant=39414858711103
+  _Beim Hersteller ist regenbogenfarben nicht lieferbar, bei Händlern schon_
