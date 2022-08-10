@@ -2,8 +2,6 @@
 * Bücher ...
   * John Ajvide Lindqvist
     * So finster die Nacht
-  * Juli Zeh
-    * Über Menschen
   * Karl R. Popper
     * Gesammelte Werke in deutscher Sprache Band 3: Logik der Forschung
   * Stine Pilgaards
