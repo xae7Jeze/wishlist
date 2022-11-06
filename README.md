@@ -10,6 +10,8 @@
     * Dschinns 
   * Dörte Hansen
     * Zur See
+  * Ali Hazelwood 
+    * The Love Hypothesis
 * Einladungen zum Essen,Kaffeetrinken (In Coronazeiten natürlich zuhause)
 * Meditationskissen
 * Bedrucktes T-Shirt
