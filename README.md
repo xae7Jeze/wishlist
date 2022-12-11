@@ -6,12 +6,9 @@
     * Gesammelte Werke in deutscher Sprache Band 3: Logik der Forschung
   * Stine Pilgaards
     * Meter pro Sekunde
-  * Fatma Aydemir  
-    * Dschinns 
   * Dörte Hansen
     * Zur See
   * Ali Hazelwood 
     * The Love Hypothesis
-* Einladungen zum Essen,Kaffeetrinken (In Coronazeiten natürlich zuhause)
-* Meditationskissen
+* Einladungen zum Essen,Kaffeetrinken
 * Bedrucktes T-Shirt
