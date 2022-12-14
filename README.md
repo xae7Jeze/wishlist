@@ -10,6 +10,9 @@
     * Zur See
   * Ali Hazelwood 
     * The Love Hypothesis
+  * Zoë Beck
+    * Das zerbrochene Fenster
+    * Memoria
 * Lange Unterhose
 * Weiches Wollunterhemd
 * Einladungen zum Essen,Kaffeetrinken
