@@ -1,7 +1,5 @@
 ## Wunschzettel
 * Bücher ...
-  * John Ajvide Lindqvist
-    * So finster die Nacht
   * Karl R. Popper
     * Gesammelte Werke in deutscher Sprache Band 3: Logik der Forschung
   * Stine Pilgaards
@@ -11,7 +9,6 @@
   * Ali Hazelwood 
     * The Love Hypothesis
   * Zoë Beck
-    * Das zerbrochene Fenster
     * Memoria
 * Lange Unterhose
 * Weiches Wollunterhemd
