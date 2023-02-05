@@ -10,6 +10,8 @@
     * The Love Hypothesis
   * Zoë Beck
     * Memoria
+  * Paula Hawkins
+    * A slow fire burning
 * Lange Unterhose
 * Weiches Wollunterhemd
 * Einladungen zum Essen,Kaffeetrinken
