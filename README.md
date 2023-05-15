@@ -12,6 +12,8 @@
     * Memoria
   * Paula Hawkins
     * A slow fire burning
+  * T.C Boyle
+    * Blue Skies
 * Lange Unterhose
 * Weiches Wollunterhemd
 * Einladungen zum Essen,Kaffeetrinken
