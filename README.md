@@ -12,8 +12,9 @@
     * Memoria
   * Paula Hawkins
     * A slow fire burning
-  * T.C Boyle
-    * Blue Skies
+  * Nele Pollatschek 
+    * Kleine Probleme
+
 * Lange Unterhose
 * Weiches Wollunterhemd
 * Einladungen zum Essen,Kaffeetrinken
