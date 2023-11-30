@@ -2,8 +2,6 @@
 * Bücher ...
   * Karl R. Popper
     * Gesammelte Werke in deutscher Sprache Band 3: Logik der Forschung
-  * Stine Pilgaards
-    * Meter pro Sekunde
   * Dörte Hansen
     * Zur See
   * Ali Hazelwood 
@@ -12,10 +10,7 @@
     * Memoria
   * Paula Hawkins
     * A slow fire burning
-  * Nele Pollatschek 
-    * Kleine Probleme
-
-* Lange Unterhose
+* Handyhalterung für's Fahrrad
 * Weiches Wollunterhemd
 * Einladungen zum Essen,Kaffeetrinken
 * Bedrucktes T-Shirt
