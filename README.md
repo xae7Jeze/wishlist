@@ -6,8 +6,6 @@
     * Zur See
   * Ali Hazelwood 
     * The Love Hypothesis
-  * Zoë Beck
-    * Memoria
   * Paula Hawkins
     * A slow fire burning
 * Handyhalterung für's Fahrrad
